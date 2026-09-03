@@ -1,1 +1,0 @@
-# khotmirov.github.io
